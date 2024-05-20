@@ -1,1 +1,1 @@
-Ski waxing is crucial in biathlon, as properly waxed skis provide optimal glide and grip on varying snow conditions, enhancing performance and efficiency.
+Biathletes often train at high-altitude locations with access to snow and challenging terrain, simulating race conditions and optimizing performance for competition.

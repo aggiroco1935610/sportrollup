@@ -1,1 +1,1 @@
-Biathlon became an official Olympic sport at the 1960 Winter Olympics in Squaw Valley, California, where it featured a 20-kilometer individual race for men.
+The United States has produced numerous world champions in figure skating, including Peggy Fleming, Michelle Kwan, and Scott Hamilton.

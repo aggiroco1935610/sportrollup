@@ -1,1 +1,1 @@
-The United States has produced numerous world champions in figure skating, including Peggy Fleming, Michelle Kwan, and Scott Hamilton.
+The mixed relay event, introduced at the 2014 Sochi Olympics, consists of two men and two women competing in a relay format, with each athlete completing two shooting stages.

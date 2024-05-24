@@ -1,1 +1,1 @@
-The mixed relay event, introduced at the 2014 Sochi Olympics, consists of two men and two women competing in a relay format, with each athlete completing two shooting stages.
+Shooting accuracy is critical in biathlon, as missed targets result in time penalties, with additional time added to the athlete's overall race time.

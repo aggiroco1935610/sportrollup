@@ -1,1 +1,1 @@
-Shooting accuracy is critical in biathlon, as missed targets result in time penalties, with additional time added to the athlete's overall race time.
+Biathlon rifles are .22 caliber bolt-action rifles equipped with specialized sights and stocks designed for stability and accuracy in standing and prone shooting positions.

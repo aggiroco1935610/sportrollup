@@ -1,1 +1,1 @@
-Biathlon rifles are .22 caliber bolt-action rifles equipped with specialized sights and stocks designed for stability and accuracy in standing and prone shooting positions.
+Figure skating originated in Scotland in the 18th century as a form of recreational pastime, with early skaters using metal blades attached to their shoes for gliding on ice.

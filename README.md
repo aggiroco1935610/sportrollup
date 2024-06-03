@@ -1,1 +1,1 @@
-The scoring system in figure skating underwent significant changes in 2004, transitioning to a cumulative points-based system known as the International Judging System (IJS).
+Figure skating originated in Scotland in the 18th century as a form of recreational pastime, with early skaters using metal blades attached to their shoes for gliding on ice.

@@ -1,1 +1,1 @@
-Outdoor ice rinks, such as those found in public parks or winter festivals, offer a unique skating experience but are subject to weather conditions like temperature and precipitation.
+Figure skaters often wear elaborate costumes designed to complement their music, choreography, and performance style, incorporating sequins, feathers, and intricate embellishments.

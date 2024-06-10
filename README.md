@@ -1,1 +1,1 @@
-Tennis scoring follows a unique system, with matches typically played to the best of three or five sets, and each set consisting of games, which are further divided into points.
+Athletes must shoot at the targets in a specified order (either prone-stand-prone or stand-prone-stand) and have a limited time to complete each shooting stage.

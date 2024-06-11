@@ -1,1 +1,1 @@
-Athletes must shoot at the targets in a specified order (either prone-stand-prone or stand-prone-stand) and have a limited time to complete each shooting stage.
+The mixed relay event, introduced at the 2014 Sochi Olympics, consists of two men and two women competing in a relay format, with each athlete completing two shooting stages.

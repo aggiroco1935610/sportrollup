@@ -1,1 +1,1 @@
-Figure skating routines are judged based on technical elements, including jumps, spins, and footwork, as well as artistic components like choreography, interpretation, and expression.
+Strawberries and cream is a traditional snack enjoyed by spectators at Wimbledon, with over 28,000 kilograms of strawberries consumed during the tournament.

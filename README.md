@@ -1,1 +1,1 @@
-Strawberries and cream is a traditional snack enjoyed by spectators at Wimbledon, with over 28,000 kilograms of strawberries consumed during the tournament.
+Judges award scores based on the quality and difficulty of elements performed, with deductions for mistakes, falls, and errors in execution.

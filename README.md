@@ -1,1 +1,1 @@
-Olympic figure skating includes men's singles, women's singles, pairs skating, and ice dance, with each event featuring both short programs and free skating (long) programs.
+Ice dance became an official Olympic event in 1976, featuring couples performing intricate footwork and choreography to music without jumps or throws.

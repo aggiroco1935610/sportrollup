@@ -1,1 +1,1 @@
-Ice dance became an official Olympic event in 1976, featuring couples performing intricate footwork and choreography to music without jumps or throws.
+Quadruple jumps, or "quads," are jumps with four full rotations in the air and are the most difficult jumps performed in figure skating competitions.

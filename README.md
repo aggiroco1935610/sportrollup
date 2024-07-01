@@ -1,1 +1,1 @@
-Biathletes use two main skiing techniques: the classical (or diagonal) technique, which involves a kick-and-glide motion, and the skating (or freestyle) technique, which resembles ice skating.
+Biathletes must balance speed and accuracy during the skiing portion of the race, conserving energy for shooting while maintaining a competitive pace against opponents.

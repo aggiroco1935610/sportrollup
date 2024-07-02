@@ -1,1 +1,1 @@
-Biathletes must balance speed and accuracy during the skiing portion of the race, conserving energy for shooting while maintaining a competitive pace against opponents.
+Another iconic rivalry is between Serena Williams and Maria Sharapova, with Williams holding a dominant head-to-head record against Sharapova.

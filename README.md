@@ -1,1 +1,1 @@
-Ice dance became an official Olympic event in 1976, featuring couples performing intricate footwork and choreography to music without jumps or throws.
+Ice rinks are typically kept at temperatures below freezing to ensure the ice remains solid and provides optimal conditions for skating.

@@ -1,1 +1,1 @@
-The term "love" for zero in tennis scoring is believed to have originated from the French word "l'oeuf," meaning egg, which resembles the shape of a zero.
+The World Figure Skating Championships have been held annually since 1896, showcasing the world's top figure skaters competing for individual and team titles.

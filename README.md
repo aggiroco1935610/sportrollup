@@ -1,1 +1,1 @@
-The World Figure Skating Championships have been held annually since 1896, showcasing the world's top figure skaters competing for individual and team titles.
+Tennis scoring follows a unique system, with matches typically played to the best of three or five sets, and each set consisting of games, which are further divided into points.

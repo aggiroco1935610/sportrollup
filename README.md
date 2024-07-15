@@ -1,1 +1,1 @@
-Tennis scoring follows a unique system, with matches typically played to the best of three or five sets, and each set consisting of games, which are further divided into points.
+Ice dance became an official Olympic event in 1976, featuring couples performing intricate footwork and choreography to music without jumps or throws.

@@ -1,1 +1,1 @@
-Outdoor ice rinks, such as those found in public parks or winter festivals, offer a unique skating experience but are subject to weather conditions like temperature and precipitation.
+The Biathlon World Championships have been held annually since 1958, featuring a range of individual and team events for men and women.

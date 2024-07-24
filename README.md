@@ -1,1 +1,1 @@
-The Biathlon World Championships have been held annually since 1958, featuring a range of individual and team events for men and women.
+Athletes must shoot at the targets in a specified order (either prone-stand-prone or stand-prone-stand) and have a limited time to complete each shooting stage.

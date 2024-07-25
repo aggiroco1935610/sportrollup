@@ -1,1 +1,1 @@
-Athletes must shoot at the targets in a specified order (either prone-stand-prone or stand-prone-stand) and have a limited time to complete each shooting stage.
+Magdalena Forsberg of Sweden holds the record for the most individual world championship titles, with 12 gold medals won between 1997 and 2004.

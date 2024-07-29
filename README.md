@@ -1,1 +1,1 @@
-Magdalena Forsberg of Sweden holds the record for the most individual world championship titles, with 12 gold medals won between 1997 and 2004.
+The scoring system in figure skating underwent significant changes in 2004, transitioning to a cumulative points-based system known as the International Judging System (IJS).

@@ -1,1 +1,1 @@
-The scoring system in figure skating underwent significant changes in 2004, transitioning to a cumulative points-based system known as the International Judging System (IJS).
+Shooting accuracy is critical in biathlon, as missed targets result in time penalties, with additional time added to the athlete's overall race time.

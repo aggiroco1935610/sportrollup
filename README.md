@@ -1,1 +1,1 @@
-Another iconic rivalry is between Serena Williams and Maria Sharapova, with Williams holding a dominant head-to-head record against Sharapova.
+Biathletes shoot at targets from both the standing and prone positions, with five circular targets positioned 50 meters away for each shooting stage.
